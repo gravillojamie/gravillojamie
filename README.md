@@ -1,4 +1,4 @@
- Hi, I’m @gravillojamie
+ Hi, I’m jam
 I’m interested in watching kdrama
 
 <!---
